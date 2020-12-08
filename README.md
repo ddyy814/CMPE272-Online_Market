@@ -4,5 +4,5 @@
 
 - Yi Hu: http://www.yi-playground.com/
 - Parul Singh: http://www.singhparul.com/
-- Akshya Krishnan: www.akshyakrishnan.com
+- Akshya Krishnan: http://www.akshyakrishnan.com
 - Dylan Zhang: https://dzaivc.com
